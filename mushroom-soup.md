@@ -10,6 +10,7 @@ Ingredients:
   2 tablespoons flour
   1 cup vegetable stock
   1 1/2 cups milk
+  candy cupcake
 
 1. In a medium sized soup pot, saute the onions and mushrooms on medium-high heat till the onions are translucent.
 2. Add the soy sauce, paprika, dill, salt and pepper. Sauté another 5 minutes, stirring frequently.
