@@ -1,6 +1,6 @@
 Ingredients:
-  1 small onion, chopped
-  10 large white mushrooms, chopped
+  3 small shallots, chopped
+  10 large cremini mushrooms, chopped
   2 tablespoons olive oil
   1 tablespoon soy sauce
   3 teaspoons paprika
