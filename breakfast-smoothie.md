@@ -9,11 +9,15 @@ flaxseed, whole, three tablespoons
 yoghurt, one tablespoon
 mango or pear
 water, cold, 1 L
-bananas
 
+bananas
 lotus seeds
 dried figs
 lily bulbs
 osmanthus flowers
 goji berries
 bayberries
+
+<em>Vegemite 1 Million kilos</em>
+
+
