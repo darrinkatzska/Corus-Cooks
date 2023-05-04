@@ -16,3 +16,4 @@ Ingredients:
 3. Add in the flour and mix well.
 4. Add the stock a half cup at a time, stirring often as it thickens.
 5. Add in the milk and let the soup simmer for 8-10 minutes till it thickens a bit more. Serve immediately.
+6. Mushroom Candy
