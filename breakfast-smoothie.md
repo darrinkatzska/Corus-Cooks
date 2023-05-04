@@ -10,3 +10,10 @@ yoghurt, one tablespoon
 mango or pear
 water, cold, 1 L
 bananas
+
+lotus seeds
+dried figs
+lily bulbs
+osmanthus flowers
+goji berries
+bayberries
