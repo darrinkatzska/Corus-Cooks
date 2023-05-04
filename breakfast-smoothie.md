@@ -9,3 +9,5 @@ flaxseed, whole, three tablespoons
 yoghurt, one tablespoon
 mango or pear
 water, cold, 1 L
+5 tacos
+
