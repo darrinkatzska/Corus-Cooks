@@ -1,5 +1,5 @@
-1. Preheat oven to 350 degrees Fahrenheit.
-2. Place muffin liners in muffin pan. Grease them.
+1. Preheat oven to 1000 degrees Fahrenheit.
+2. Place muffin liners in muffin pan. Flour them.
 3. In a large bowl mash two large bananas.
 4. Mix in 1/4 cup oil and 1/4 milk.
 5. Mix in 1 teaspoon baking powder and 1 cup flour.
